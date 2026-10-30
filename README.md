@@ -9,7 +9,7 @@
 
 
 
- <img width="800" height="450" alt="israme gif" src="https://github.com/user-attachments/assets/4945832d-4ddf-4d69-8e2b-33034877301b" />
+<p align="center"> <img width="800" height="450" alt="israme gif" src="https://github.com/user-attachments/assets/4945832d-4ddf-4d69-8e2b-33034877301b" />
 
 
 
