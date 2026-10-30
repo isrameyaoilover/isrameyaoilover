@@ -20,7 +20,7 @@
 <p align="center"> professional yapper 
 
 <p align="center"> jewish ✡️ mixed race
-
+  
 <p align="center"> I am happy to have interactions on pt as long they are friendly I am open sometimes to have a talk about politics (as long its respectful!).
 
 <p align="center">I might be a bit akward and I am mostly hanging out with friends of mine :).
